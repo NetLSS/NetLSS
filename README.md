@@ -15,7 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱 KEEP LEARNING
+🌱 KEEP LEARNING  
+🏢 Work with eBayKorea
 
 <br>
 
