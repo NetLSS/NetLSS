@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 🌱 KEEP LEARNING  
-🏢 Work with eBayKorea
+🏢 Working on eBayKorea (2021-10-12 ~ )
 
 <br>
 
