@@ -16,7 +16,8 @@ Here are some ideas to get you started:
 -->
 
 🌱 KEEP LEARNING  
-🏢 Working on eBayKorea (2021-10-12 ~ )
+🏢 Worked at Advanced Technology Inc. (2020-01 ~ 2021-05)
+🏢 Working on eBayKorea (2021-10 ~ )
 
 <br>
 
